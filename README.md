@@ -1,7 +1,5 @@
 
 
 <p align="center">
-<img src="https://64.media.tumblr.com/4c1347e0d912eef3dc0be317fbe202fa/7701c5da8b3cf52f-75/s400x600/484b6e37494bbb33355555949484edbeab4b70be.pnj">
+<img src="https://64.media.tumblr.com/dc240662bed72921cceefd32aa3cf735/a08a157b9dfdb0c2-d6/s1280x1920/62d96d689cfdff052be8baedec4ff7e99846217f.jpg">
   
-</p>
-<p align="center">  ${\textsf{\color{#FFF000}Aortic Work of Art!}}$ </p>
