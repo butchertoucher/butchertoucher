@@ -1,7 +1,7 @@
 
 
 <p align="center">
-<img src="https://64.media.tumblr.com/fd24ea98f093e4994c421d39ad7237f8/6c829ae7901a197f-e9/s100x200/4e5bc89de3203e992fdd5f63dffe47af755ffbf0.gifv">
+<img src="https://64.media.tumblr.com/4c1347e0d912eef3dc0be317fbe202fa/7701c5da8b3cf52f-75/s400x600/484b6e37494bbb33355555949484edbeab4b70be.pnj">
   
 </p>
-<p align="center">  ${\textsf{\color{#FFFAA0}Makima glaze WILL be tolerated}}$ </p>
+<p align="center">  ${\textsf{\color{#FFF000}Aortic Work of Art!}}$ </p>
